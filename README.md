@@ -39,42 +39,42 @@ El lugar donde se realizarán los encuentros es Qatar con sus diferentes estadio
 
 -Estadio Ahmad Bin Ali
 
-[***Estadio partidos fase de grupos 1***]https://images.app.goo.gl/PQ6hh75um62sUTj89
+[***Estadio partidos fase de grupos 1***](https://images.app.goo.gl/PQ6hh75um62sUTj89)
 
 
 -Al Janoub Stadium
 
-[***Estadio partidos fase de grupos 2***]https://images.app.goo.gl/kSXiJZU2WRm6oxfy7
+[***Estadio partidos fase de grupos 2***](https://images.app.goo.gl/kSXiJZU2WRm6oxfy7)
 
 
 -Al Thumama Stadium
 
-[***Estadio partidos fase de grupos 3***]https://images.app.goo.gl/Tr3DAGLmDRGYUXZ86
+[***Estadio partidos fase de grupos 3***](https://images.app.goo.gl/Tr3DAGLmDRGYUXZ86)
 
 
 -Education city Stadium
 
-[***Estadio partidos fase de grupos 4***]https://images.app.goo.gl/6GKDED9jdWcpCjrS8
+[***Estadio partidos fase de grupos 4***](https://images.app.goo.gl/6GKDED9jdWcpCjrS8)
 
 
 -Khalifa International Stadium
 
-[***Estadio partidos fase de grupos 5***]https://images.app.goo.gl/sSZUsFdwgAX1ppTW8
+[***Estadio partidos fase de grupos 5***](https://images.app.goo.gl/sSZUsFdwgAX1ppTW8)
 
 
 -974 Stadium
 
-[***Estadio partidos fase de grupos 6***]https://images.app.goo.gl/n8z5edhFf7Wb517L9
+[***Estadio partidos fase de grupos 6***](https://images.app.goo.gl/n8z5edhFf7Wb517L9)
 
 
 -Al Bayt Stadium
 
-[***Estadio donde se juega el partido de inauguración***]https://images.app.goo.gl/wktvYtmDnDqLQC8BA
+[***Estadio donde se juega el partido de inauguración***](https://images.app.goo.gl/wktvYtmDnDqLQC8BA)
 
 
 -Lusail Stadium
 
-[***Estadio donde se juega la gran final***]https://images.app.goo.gl/mJKYjw2XeaNbeD339
+[***Estadio donde se juega la gran final***](https://images.app.goo.gl/mJKYjw2XeaNbeD339)
 
 
 <a name=»item3″></a>
