@@ -37,7 +37,7 @@ Más datos del mundial pulsa [aquí](https://www.marca.com/futbol/mundial/2022/0
 
 El lugar donde se realizarán los encuentros es Qatar con sus diferentes estadios:
 
--Ahmad Bin Ali Stadium
+-Estadio Ahmad Bin Ali
 
 [***Estadio partidos fase de grupos 1***]https://images.app.goo.gl/PQ6hh75um62sUTj89
 
